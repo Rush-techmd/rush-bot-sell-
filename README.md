@@ -5,25 +5,33 @@
 
 
 ## ඔබගේ bot විශ්වාස වන්තීව deploy කර ගන්න 
+ඕන එකක් whatsapp හරහා 
 
 ## bot deploy plan
 
-##  free 
+##  free  
 
 <a href="https//wa.me//762498519?text=rushmdfree"><img src="https://img.shields.io/badge/%F0%9F%8E%89%20FREE%20PLAN%20CLAIM-yellow" alt="pair" width="300"></a>
 
-## href="https//wa.me//762498519?text=rushmdfree"><img
+## https//wa.me//762498519?text=rushmdfree     
+
+
+
 free days 5 claim now
 
 ## mounthly plan
 
 <a href="wa.me//762498519?text=rushmdpaidmounthly"><img src="https://img.shields.io/badge/%F0%9F%8E%89%20MOUNTHLY%20PLAN-blue" alt="pair" width="300"></a>
 
+## wa.me//762498519?text=rushmdpaidmounthly
 
 ## 10 days plan
 
 <a href="wa.me//762498519?text=rushmd10days"><img src="https://img.shields.io/badge/%F0%9F%8E%89%20MOUNTHLY%20PLAN-blue" alt="pair" width="300"></a>
 
+
+
+## wa.me//762498519?text=rushmd10days
 
 ## other wa bot
 

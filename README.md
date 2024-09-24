@@ -10,7 +10,7 @@
 
 ##  free 
 
-<a href="wa.me//762498519?text=rushmdfree"><img src="https://img.shields.io/badge/%F0%9F%8E%89%20FREE%20PLAN%20CLAIM-yellow" alt="pair" width="300"></a>
+<a href="https//wa.me//762498519?text=rushmdfree"><img src="https://img.shields.io/badge/%F0%9F%8E%89%20FREE%20PLAN%20CLAIM-yellow" alt="pair" width="300"></a>
 
 free days 5 claim now
 
